@@ -1,2 +1,0 @@
-# McGill-FIAM
- 
